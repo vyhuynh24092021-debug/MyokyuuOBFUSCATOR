@@ -1,0 +1,2 @@
+# MyokyuuOBFUSCATOR
+MyokyuuOBFUSCATOR
